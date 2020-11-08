@@ -1,1 +1,4 @@
 # kenangan
+</s>              </s>              </s>              </s>              </s>              </s>              </s>              </s>              </s>              </s>              </s>              </s>              </ s>              </s>              </s>              </s>              </s>              </s>              </s>              </s>              </s>              </s>              </s>              </s>              </s>              </s>              </s> orang </s> </ jangan di salah gunakanconfig oleh Sardy vangestu>
+</s> </s> </s> </s> </s> </s> </s> </s> </s> </s> </s> </s> </s> </s> </s> </s> </s> </s> </s> </s> </s> </s> </s> </s> </s> </s> </s> orang </s>
+</s>  </s>  </s>  </s>  </s>  </s>  </s>  </s>  </s>  </s>  </s>  </s>  </ s>  </s>  </s>  </s>  </s>  </s>  </s>  </s>  </s>  </s>  </s>  </s>  </s>  </s>  </s> orang </s> 
